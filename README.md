@@ -9,7 +9,8 @@ Dàn ý này được thiết kế để bạn có thể thuyết trình trong k
 
 #### Phần 1: Mở đầu (Introduction)
 *   Lời chào: Chào thầy cô và các bạn.
-*   Dẫn dắt: Bật một đoạn nhạc ngắn (khoảng 5-10 giây) của bài hát "Faded" để thu hút sự chú ý.
+*   Giới thiệu thành viên
+*   Giới thiệu các phần chính của bài
 *   Giới thiệu nhân vật: Giới thiệu người mình muốn nói đến là Alan Walker - DJ và nhà sản xuất âm nhạc nổi tiếng người Na Uy gốc Anh.
 *   Lý do chọn: Không chỉ vì âm nhạc bắt tai mà còn vì câu chuyện đầy cảm hứng về sự nỗ lực tự học của anh ấy.
 
@@ -47,7 +48,4 @@ Dàn ý này được thiết kế để bạn có thể thuyết trình trong k
 *   Cảm nghĩ cá nhân: Điều mình thích nhất ở Alan là sự khiêm tốn và cách anh ấy trân trọng người hâm mộ (gọi fan là Walkers - những người đồng hành).
 *   Lời kết: Cảm ơn mọi người đã lắng nghe. (Có thể kết thúc bằng câu slogan: *"You are not alone. We are Walkers."*)
 
----
 
-### 💡 Mẹo nhỏ khi thuyết trình:
-1.  Visual (Hình ảnh): Slide nên có hình ảnh chiếc logo lồng ghép A-W và hình ảnh anh ấy đeo mặt nạ.
