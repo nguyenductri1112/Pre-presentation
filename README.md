@@ -1,8 +1,3 @@
-Chào bạn, đây là dàn ý chi tiết gồm 6 phần cho bài thuyết trình về Alan Walker, tập trung vào các sự kiện quan trọng và thú vị trong cuộc đời cũng như sự nghiệp của anh ấy.
-
-Dàn ý này được thiết kế để bạn có thể thuyết trình trong khoảng 5-7 phút.
-
----
 
 ### Chủ đề: Alan Walker – Từ phòng ngủ đến sân khấu thế giới
 (From Bedroom Producer to Global Stardom)
