@@ -1,22 +1,23 @@
 
-### Chủ đề: Alan Walker – Từ phòng ngủ đến sân khấu thế giới
-(From Bedroom Producer to Global Stardom)
+### Chủ đề: Talk about the important and interesting events of a person you like.
 
-#### Phần 1: Mở đầu (Introduction)
+(Alan Walker)
+
+#### Phần 1: Mở đầu (Introduction) - Hoàng Anh
 *   Lời chào: Chào thầy cô và các bạn.
 *   Giới thiệu thành viên
 *   Giới thiệu các phần chính của bài
-*   Giới thiệu nhân vật: Giới thiệu người mình muốn nói đến là Alan Walker - DJ và nhà sản xuất âm nhạc nổi tiếng người Na Uy gốc Anh.
+*   Giới thiệu nhân vật: Giới thiệu người muốn nói đến là Alan Walker - DJ và nhà sản xuất âm nhạc nổi tiếng người Na Uy gốc Anh.
 *   Lý do chọn: Không chỉ vì âm nhạc bắt tai mà còn vì câu chuyện đầy cảm hứng về sự nỗ lực tự học của anh ấy.
 
-#### Phần 2: Xuất phát điểm thú vị (The Humble Beginnings)
+#### Phần 2: Xuất phát điểm thú vị (The Humble Beginnings) - Anh Văn
 *   Tiểu sử: Sinh năm 1997 tại Northampton (Anh), sau đó chuyển về Bergen (Na Uy) khi 2 tuổi.
 *   Sự kiện thú vị: Alan Walker không hề có nền tảng âm nhạc chính quy.
     *   Anh ấy vốn là một người yêu thích lập trình và thiết kế đồ họa.
     *   Anh ấy tự học làm nhạc hoàn toàn qua... YouTube. Anh xem các video hướng dẫn (tutorials) của các producer khác và tự mày mò trên máy tính trong phòng ngủ của mình.
 *   Thông điệp: Đây là minh chứng cho việc bạn có thể trở thành chuyên gia chỉ bằng đam mê và internet.
 
-#### Phần 3: Cú nổ lớn "Faded" (The Breakthrough Event) (tri)
+#### Phần 3: Cú nổ lớn "Faded" (The Breakthrough Event) - Đức Trí
 *   Năm 2014 - "Fade": Ban đầu anh sáng tác bản nhạc không lời tên là "Fade" và phát hành qua NoCopyrightSounds (NCS). Nó nhanh chóng nổi tiếng trong cộng đồng game thủ.
 *   Năm 2015 - Sự kiện quan trọng nhất: Anh ký hợp đồng với Sony Music và làm lại bài "Fade" thành "Faded" (có lời, do Iselin Solheim hát).
 *   Thành tích:
