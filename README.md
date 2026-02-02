@@ -6,7 +6,7 @@
 #### Phần 1: Mở đầu (Introduction) - Hoàng Anh
 *   Lời chào: Chào thầy cô và các bạn.
 *   Giới thiệu thành viên
-*   Giới thiệu các phần chính của bài
+*   Giới thiệu các phần chính của bài (có 6 phần)
 *   Giới thiệu nhân vật: Giới thiệu người muốn nói đến là Alan Walker - DJ và nhà sản xuất âm nhạc nổi tiếng người Na Uy gốc Anh.
 *   Lý do chọn: Không chỉ vì âm nhạc bắt tai mà còn vì câu chuyện đầy cảm hứng về sự nỗ lực tự học của anh ấy.
 
@@ -25,12 +25,13 @@
     *   Đứng đầu bảng xếp hạng tại hơn 10 quốc gia.
     *   Biến Alan Walker từ một cậu bé vô danh thành ngôi sao hạng A chỉ sau một đêm.
 
-#### Phần 4: Bí ẩn chiếc mặt nạ và áo Hoodie (The Image & Brand)
+#### Phần 4: Bí ẩn chiếc mặt nạ và áo Hoodie (The Image & Brand) - Văn Hùng
 *   Sự kiện nhận diện thương hiệu: Alan Walker luôn xuất hiện với chiếc áo hoodie đen trùm đầu và mặt nạ che nửa mặt.
 *   Ý nghĩa thú vị:
     *   Không phải vì anh ấy xấu hổ hay muốn che giấu danh tính.
     *   Triết lý: Anh muốn tạo ra hình ảnh "bất kỳ ai cũng có thể là Walker". Khi đeo mặt nạ, mọi người đều bình đẳng, đoàn kết. Anh muốn khán giả tập trung vào âm nhạc hơn là ngoại hình của nghệ sĩ.
 *   Logo: Logo chữ A và W lồng vào nhau cũng do chính anh thiết kế (tận dụng kỹ năng đồ họa thời niên thiếu).
+*   Khoảnh khắc cởi bỏ mặt nạ
 
 #### Phần 5: Những cột mốc sự nghiệp và Kết nối Game (Career Highlights) (Hồng Phúc)
 *   Hợp tác đỉnh cao: Một sự kiện đáng nhớ là khi anh được hợp tác với thần tượng của mình - nhà soạn nhạc huyền thoại Hans Zimmer (người làm nhạc phim Lion King, Inception) để remix bản "Time". Đây là giấc mơ thành hiện thực của Alan.
@@ -40,8 +41,11 @@
 *   Album: Ra mắt các album lớn như "Different World" và "World of Walker", xây dựng một vũ trụ giả tưởng riêng cho fan (The Walkers).
 
 #### Phần 6: Kết luận (Conclusion) - (Xuân Minh)
-*   Tóm tắt: Alan Walker là biểu tượng của thế hệ nghệ sĩ kỹ thuật số: Tự học, sáng tạo và kết nối cộng đồng.
+*   Tóm tắt: Alan Walker là biểu tượng của thế hệ nghệ sĩ kỹ thuật số
+*   Tinh thần và thông điệp
+*   + Tự học
+*   + Sáng tạo
+*   + Kết nối cộng đồng.
 *   Cảm nghĩ cá nhân: Điều mình thích nhất ở Alan là sự khiêm tốn và cách anh ấy trân trọng người hâm mộ (gọi fan là Walkers - những người đồng hành).
-*   Lời kết: Cảm ơn mọi người đã lắng nghe. (Có thể kết thúc bằng câu slogan: *"You are not alone. We are Walkers."*)
-
+*   Lời kết: Cảm ơn mọi người đã lắng nghe.
 
