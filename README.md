@@ -43,9 +43,9 @@
 #### Phần 6: Kết luận (Conclusion) - (Xuân Minh)
 *   Tóm tắt: Alan Walker là biểu tượng của thế hệ nghệ sĩ kỹ thuật số
 *   Tinh thần và thông điệp
-*   + Tự học
-*   + Sáng tạo
-*   + Kết nối cộng đồng.
+   *  Tự học
+   *  Sáng tạo
+   *  Kết nối cộng đồng.
 *   Cảm nghĩ cá nhân: Điều mình thích nhất ở Alan là sự khiêm tốn và cách anh ấy trân trọng người hâm mộ (gọi fan là Walkers - những người đồng hành).
 *   Lời kết: Cảm ơn mọi người đã lắng nghe.
 
